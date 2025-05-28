@@ -4,6 +4,8 @@
 
 **Fireboy and Watergirl** is a **classic 2D puzzle platformer** that takes players on an **epic co-op journey** through elemental temples. With clever level design, real-time teamwork, and thrilling obstacles, this **unblocked puzzle adventure** has captivated gamers around the world.
 
+## <a href="https://1kb.link/3Njc2d">👉 Play Fireboy and Watergirl Unblocked Games 👈</a>
+
 You control **Fireboy**, the blazing red flame who can't touch water, and **Watergirl**, the cool blue heroine who avoids fire. Together, they must solve mystic riddles, collect glowing gems, and escape each level safely — but only if they **cooperate flawlessly**.
 
 ---
